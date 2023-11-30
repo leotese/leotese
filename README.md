@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning trading and Youtube videomaker
 - 💞️ I’m looking to collaborate on italian guys for videos
 - 📫 How to reach me https://www.youtube.com/@moneymarketpillole/
+- <3 Love u all!
 
 <!---
 leotese/leotese is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
