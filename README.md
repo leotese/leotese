@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on italian guys for videos
 - 📫 How to reach me https://www.youtube.com/@moneymarketpillole/
 - <3 Love u all!
+- Hoping i can get next airdrop =D
 
 <!---
 leotese/leotese is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
