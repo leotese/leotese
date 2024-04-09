@@ -5,8 +5,7 @@
 - 📫 How to reach me https://www.youtube.com/@moneymarketpillole/
 - <3 Love u all!
 - Hoping i can get next airdrop =D
-Having a nice day, ever!
-lulz
+Having a nice day, ever! <3 
 
 
 GGs
